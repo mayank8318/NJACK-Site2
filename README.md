@@ -1,1 +1,4 @@
 # NJACK-Site2
+
+NEW REPO   NEW ENTHU   NEW IDEAS. 
+
